@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on your problems and creating something new 
 - 📫 How to reach me e-mail me -> kartikeykashyap2003@gmail.com
 - 😄 Pronouns: kartik 
-- ⚡ Fun fact: 
+- ⚡ Fun fact: very interesting to do work online 
 
 <!---
 Kartikey302/Kartikey302 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
